@@ -12,7 +12,8 @@
 <br>但是怎么会这样子的？：
 <br>2016年04月[黄一翀]老板做了什么事，变成了李洪志的敌人？
 <br>
-<br>$\textsf{\color{red}{坚决销毁[黄总][<a href="https://baike.baidu.com/item/黄一翀/4917285" target=_blank>黄一翀</a>](食人魔)}}$
+<br>$\textsf{\color{red}{坚决销毁[黄总][黄一翀](食人魔)}}$
+<br><a href="https://baike.baidu.com/item/黄一翀/4917285" target=_blank>黄一翀</a>
 <br>
 <br>[食人魔][食心魔][非亲附体男鬼]是[妓女,妓男]的敌人.
 <br>
